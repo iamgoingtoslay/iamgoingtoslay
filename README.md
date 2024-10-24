@@ -7,7 +7,7 @@ my main interest right now is enstars so that's mostly the area i might be at (i
 
 ALSO PLEASE DON'T INT WITH ME IF YOU'RE -18, only my sibling and mutals.
 
-one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr good games!
+one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr good games
 
 <!--
 **iamgoingtoslay/iamgoingtoslay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
