@@ -5,7 +5,7 @@
 
 my main interest right now is enstars so that's mostly the area i might be at (i'm mainly an UNDEAD and EdenP) i'm in a lot of other fandoms too (mostly anime and music) feel free to int and we can talk about stuff!! i like meeting new people but only IF YOU'RE CHILL AND NOT RUDE AS HELL
 
-ALSO PLEASE DON'T INT WITH ME IF YOU'RE -18, only my sibling and mutals.
+ALSO PLEASE DON'T INT WITH ME IF YOU'RE -18 EXCEPT IF YOU'RE MY SIBLING OR MUTAL FROM THEM
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games
 
