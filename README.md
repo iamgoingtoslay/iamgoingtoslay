@@ -1,10 +1,9 @@
 #      <img width="307" alt="Screenshot 2024-10-23 at 11 34 54 PM" src="https://github.com/user-attachments/assets/cae27416-65af-4ee7-94a9-6fc55f1ae7f6">
 
  &nbsp;
-hey ponytown people this is all u need to know about me:
+ hey ponytown people this is all u need to know about me:
 
 i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to come and talk, maybe we can be friends!!
-
 ALSO PLEASE DON'T INT WITH ME IF YOU'RE -18 EXCEPT IF YOU'RE MY SIBLING OR MUTAL FROM THEM
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games damn it
