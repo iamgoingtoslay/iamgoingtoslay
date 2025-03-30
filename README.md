@@ -1,4 +1,4 @@
-#      <img width="307"[ alt="https://wilardo.crd.co/assets/images/gallery21/122407dd.png?v=770dec35](https://adriansblinkiecollection.neocities.org/dividers/cherryblossoms1.png)">
+#      <img width="307"">
 
  &nbsp;
  hey ponytown people this is all u need to know about me:
