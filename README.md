@@ -1,4 +1,4 @@
-#      <img width="307" alt="Screenshot 2024-10-23 at 11 34 54 PM" src="https://github.com/user-attachments/assets/cae27416-65af-4ee7-94a9-6fc55f1ae7f6">
+#      <img width="307" alt="https://wilardo.crd.co/assets/images/gallery21/122407dd.png?v=770dec35">
 
  &nbsp;
  hey ponytown people this is all u need to know about me:
