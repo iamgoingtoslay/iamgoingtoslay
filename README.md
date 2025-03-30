@@ -6,6 +6,9 @@ i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games damn it
 
+![e3bb96d8](https://github.com/user-attachments/assets/644fe89f-f869-46eb-983f-b9cd1dd94511)
+
+
 <!--
 **iamgoingtoslay/iamgoingtoslay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
