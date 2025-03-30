@@ -1,8 +1,4 @@
 
-![ezgif-5dd79e218db2c0](https://github.com/user-attachments/assets/c94bc301-7be3-4756-b40c-94f2144e18a2)
-
-
-
  &nbsp;
  hey ponytown people this is all u need to know about me:
 
