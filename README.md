@@ -5,7 +5,6 @@
 i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to come and talk, maybe we can be friends!! (only int if 18+ and if i don't hate you)
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games damn it
-![609aeb4d](https://github.com/user-attachments/assets/3a81f57a-ae7b-4f45-9603-a807c4632b3c)
 
 
 <!--
