@@ -2,7 +2,7 @@
  &nbsp;
  hey ponytown people this is all u need to know about me:
 
-i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to come and talk, maybe we can be friends!! (only int if 18+ and if i don't hate you)
+i'm in a lot of fandoms (mostly anime and music) i'm pretty shy but feel free to come and talk, maybe we can be friends!! (only int if 18+)
 
 one last thing to mention is that i actually think this game sucks but idk what happened to all the otehr fun games damn it
 
